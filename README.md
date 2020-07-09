@@ -1,1 +1,1 @@
-Just another mostly straight cis gendered white Canadian trying to make it in the lo-fi dystopia which is the Bay Area.
+Followed the long standing Nova Scotian tradition of heading down the road to find work. Didn't stop until I hit the left coast.
